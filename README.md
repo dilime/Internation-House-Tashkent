@@ -1,1 +1,1 @@
-# Internation-House---Tashkent
+# Internation-House-Tashkent
